@@ -1,1 +1,3 @@
-Emulador New Phoenix Todos os Direitos Reserdos a YGOR99 "Ygor Santana"
+Todos os Direitos Reservados a YGOR99 (Ygor Santana)
+
+...AGUARDE...
